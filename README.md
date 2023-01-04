@@ -19,7 +19,7 @@
 - De Argentina para el mundo
 - Constantemente estoy aprendiendo tecnologias nuevas
 - Ultimo proyecto [link](https://www.adoptme.com.ar)
-- Tambien soy Tecnica Universitaria en Seguridad e Higiene
+- Tecnica Universitaria en Seguridad e Higiene
 - Actualmente en busqueda de trabajar dentro del área de la tecnologia
 
 <br><br>
